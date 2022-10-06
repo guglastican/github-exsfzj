@@ -1,17 +1,36 @@
 ---
 layout: "../../layouts/BlogPost.astro"
-title: "First post"
-description: "Lorem ipsum dolor sit amet"
+title: "Pink Magic Review – Does Pink Magic Work?"
+description: "Pink Magic is a testosterone boosting supplement that contains natural ingredients that boost the body's own testosterone producing mechanism."
 pubDate: "Jul 08 2022"
 heroImage: "/placeholder-hero.jpg"
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Vitae ultricies leo integer malesuada nunc vel risus commodo viverra. Adipiscing enim eu turpis egestas pretium. Euismod elementum nisi quis eleifend quam adipiscing. In hac habitasse platea dictumst vestibulum. Sagittis purus sit amet volutpat. Netus et malesuada fames ac turpis egestas. Eget magna fermentum iaculis eu non diam phasellus vestibulum lorem. Varius sit amet mattis vulputate enim. Habitasse platea dictumst quisque sagittis. Integer quis auctor elit sed vulputate mi. Dictumst quisque sagittis purus sit amet.
+Pink Magic is a testosterone boosting supplement that turned out to be more of a lesson in product marketing than a successful product offered by a sports nutrition supplement company.  Allow me to explain…
 
-Morbi tristique senectus et netus. Id semper risus in hendrerit gravida rutrum quisque non tellus. Habitasse platea dictumst quisque sagittis purus sit amet. Tellus molestie nunc non blandit massa. Cursus vitae congue mauris rhoncus. Accumsan tortor posuere ac ut. Fringilla urna porttitor rhoncus dolor. Elit ullamcorper dignissim cras tincidunt lobortis. In cursus turpis massa tincidunt dui ut ornare lectus. Integer feugiat scelerisque varius morbi enim nunc. Bibendum neque egestas congue quisque egestas diam. Cras ornare arcu dui vivamus arcu felis bibendum. Dignissim suspendisse in est ante in nibh mauris. Sed tempus urna et pharetra pharetra massa massa ultricies mi.
+If the story is to be believed, before it was named, a prototype sample of these supplements was left forgotten on the desk of the CEO of USP Labs for more than a year.  Once they were found, he gave them to USP Labs tester, Joe Simone.  After using them for a cycle, Joe was duly impressed and asked, “ What the <bleep> is in these pink pills, and how can I get more?”  He noted the “rapid vascularity, balloon-like muscle fullness, crazy recovery, sick strength, and a feeling like no other!”  It was then that the name Pink Magic was born and it was decided to market it as “So Chignon (Mexican slang for Bad Ass) We Had To Make It Pink”
 
-Mollis nunc sed id semper risus in. Convallis a cras semper auctor neque. Diam sit amet nisl suscipit. Lacus viverra vitae congue eu consequat ac felis donec. Egestas integer eget aliquet nibh praesent tristique magna sit amet. Eget magna fermentum iaculis eu non diam. In vitae turpis massa sed elementum. Tristique et egestas quis ipsum suspendisse ultrices. Eget lorem dolor sed viverra ipsum. Vel turpis nunc eget lorem dolor sed viverra. Posuere ac ut consequat semper viverra nam. Laoreet suspendisse interdum consectetur libero id faucibus. Diam phasellus vestibulum lorem sed risus ultricies tristique. Rhoncus dolor purus non enim praesent elementum facilisis. Ultrices tincidunt arcu non sodales neque. Tempus egestas sed sed risus pretium quam vulputate. Viverra suspendisse potenti nullam ac tortor vitae purus faucibus ornare. Fringilla urna porttitor rhoncus dolor purus non. Amet dictum sit amet justo donec enim.
+Okay so that’s the legend they used to sell Pink Magic. Now lets look at what’s went into it.
 
-Mattis ullamcorper velit sed ullamcorper morbi tincidunt. Tortor posuere ac ut consequat semper viverra. Tellus mauris a diam maecenas sed enim ut sem viverra. Venenatis urna cursus eget nunc scelerisque viverra mauris in. Arcu ac tortor dignissim convallis aenean et tortor at. Curabitur gravida arcu ac tortor dignissim convallis aenean et tortor. Egestas tellus rutrum tellus pellentesque eu. Fusce ut placerat orci nulla pellentesque dignissim enim sit amet. Ut enim blandit volutpat maecenas volutpat blandit aliquam etiam. Id donec ultrices tincidunt arcu. Id cursus metus aliquam eleifend mi.
+Pink Magic ReviewPink Magic Ingredients and How They Work
+There are three ingredients in the formula, none of which are what we’ve come to expect to find.  Luckily, explanations for how they work were provided by USP Labs.
 
-Tempus quam pellentesque nec nam aliquam sem. Risus at ultrices mi tempus imperdiet. Id porta nibh venenatis cras sed felis eget velit. Ipsum a arcu cursus vitae. Facilisis magna etiam tempor orci eu lobortis elementum. Tincidunt dui ut ornare lectus sit. Quisque non tellus orci ac. Blandit libero volutpat sed cras. Nec tincidunt praesent semper feugiat nibh sed pulvinar proin gravida. Egestas integer eget aliquet nibh praesent tristique magna.
+- Massularia Acuminata.  Animal studies have shown that this West African shrub can boost testosterone levels, though these studies were done on animals and required a prohibitively high dose for regular consumption.
+- Nelumbo Nucifera.  Animal studies show that this Lotus Flower extract may reduce fat accumulation.  The study on mice used extracts from the leaf of the plant.  Pink Magic uses extracts from both the leaf and the seeds.
+- Phamnus Nakaharai.  This herb has been shown to be an antioxidant and anti-inflammatory. It has not been shown to have an effect on testosterone, weight loss, or lean muscle growth or retention.
+In summary, Pink Magic contains 3 ingredients, only one even linked to testosterone at all, and that one only tested on rats and at doses far higher than what is contained in the supplement.
+
+If you look for them, you can find Pink Magic reviews where guys say it works.  But you never know whether or not there’s an ulterior agenda behind reviews like that, so we like to look to the bodybuilding forums so we can get a glimpse at real discussions guys are having about these supplements.  What we found there were mostly negative, and frankly pissed off, comments about how Pink Magic is junk.
+
+Pink Magic Pros and Cons
+Advantages of Pink Magic
+
+Slick marketing campaign.
+Disadvantages of Pink Magic
+
+It doesn’t work.
+Where to Buy Pink Magic
+Pink Magic was ultimately discontinued by USP Labs.  You can still get it on eBay for a ridiculous price if you must.
+
+Conclusion
+Now here comes the moral of the story.  A fresh new marketing angle like “So Bad Ass We Had to Make it Pink” and a great story of origin to go with it is a great idea.   It will get your product into peoples hands.  But what happens after that is even more important.  If the product doesn’t deliver, like Pink Magic clearly did not, word will get out and people will stop buying it.

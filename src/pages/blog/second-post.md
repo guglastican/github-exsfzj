@@ -1,17 +1,77 @@
 ---
 layout: "../../layouts/BlogPost.astro"
-title: "Second post"
-description: "Lorem ipsum dolor sit amet"
+title: "Zotrim Reviews - (Fake or Legit) Important Information Revealed Updated 2022"
+description: "What is Zotrim? Zotrim is an exciting new and natural weight loss supplement that promises to help you lose 5% of your body weight in 6 weeks.  "
 pubDate: "Jul 22 2022"
 heroImage: "/placeholder-hero.jpg"
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Vitae ultricies leo integer malesuada nunc vel risus commodo viverra. Adipiscing enim eu turpis egestas pretium. Euismod elementum nisi quis eleifend quam adipiscing. In hac habitasse platea dictumst vestibulum. Sagittis purus sit amet volutpat. Netus et malesuada fames ac turpis egestas. Eget magna fermentum iaculis eu non diam phasellus vestibulum lorem. Varius sit amet mattis vulputate enim. Habitasse platea dictumst quisque sagittis. Integer quis auctor elit sed vulputate mi. Dictumst quisque sagittis purus sit amet.
+<h1>What is Zotrim?</h1>
+Zotrim is an exciting new and natural weight loss supplement that promises to help you lose 5% of your body weight in 6 weeks.  Zotrim is made from three natural plant extracts backed by 8 clinical studies- which should ease consumers minds. Zotrim is not the only product using this exact formulation, one of the “pioneers” being Clinicallix. What exactly makes  these 3 ingredients so effective and popular? What can they do to help you reach your weight loss goals?
 
-Morbi tristique senectus et netus. Id semper risus in hendrerit gravida rutrum quisque non tellus. Habitasse platea dictumst quisque sagittis purus sit amet. Tellus molestie nunc non blandit massa. Cursus vitae congue mauris rhoncus. Accumsan tortor posuere ac ut. Fringilla urna porttitor rhoncus dolor. Elit ullamcorper dignissim cras tincidunt lobortis. In cursus turpis massa tincidunt dui ut ornare lectus. Integer feugiat scelerisque varius morbi enim nunc. Bibendum neque egestas congue quisque egestas diam. Cras ornare arcu dui vivamus arcu felis bibendum. Dignissim suspendisse in est ante in nibh mauris. Sed tempus urna et pharetra pharetra massa massa ultricies mi.
+Ingredients
+Yerba Maté has been used for centuries in Brazil and Paraguay as a beverage. A Spanish explorer recorded that Indians in Paraguay brewed the leaf tea and it “produced exhilaration and relief from fatigue.” It is now considered a National Drink in South America and in Europe it is called “the Green Gold of the Indios.”
 
-Mollis nunc sed id semper risus in. Convallis a cras semper auctor neque. Diam sit amet nisl suscipit. Lacus viverra vitae congue eu consequat ac felis donec. Egestas integer eget aliquet nibh praesent tristique magna sit amet. Eget magna fermentum iaculis eu non diam. In vitae turpis massa sed elementum. Tristique et egestas quis ipsum suspendisse ultrices. Eget lorem dolor sed viverra ipsum. Vel turpis nunc eget lorem dolor sed viverra. Posuere ac ut consequat semper viverra nam. Laoreet suspendisse interdum consectetur libero id faucibus. Diam phasellus vestibulum lorem sed risus ultricies tristique. Rhoncus dolor purus non enim praesent elementum facilisis. Ultrices tincidunt arcu non sodales neque. Tempus egestas sed sed risus pretium quam vulputate. Viverra suspendisse potenti nullam ac tortor vitae purus faucibus ornare. Fringilla urna porttitor rhoncus dolor purus non. Amet dictum sit amet justo donec enim.
+##Main Uses of Yerba Mate:
 
-Mattis ullamcorper velit sed ullamcorper morbi tincidunt. Tortor posuere ac ut consequat semper viverra. Tellus mauris a diam maecenas sed enim ut sem viverra. Venenatis urna cursus eget nunc scelerisque viverra mauris in. Arcu ac tortor dignissim convallis aenean et tortor at. Curabitur gravida arcu ac tortor dignissim convallis aenean et tortor. Egestas tellus rutrum tellus pellentesque eu. Fusce ut placerat orci nulla pellentesque dignissim enim sit amet. Ut enim blandit volutpat maecenas volutpat blandit aliquam etiam. Id donec ultrices tincidunt arcu. Id cursus metus aliquam eleifend mi.
+- As a stimulant: due to the caffeine content (0.7-2.0%)
+- As a Tonic: Tones, Strengthens and balance the body, and aids in digestion
+- Obesity: Acts as a Thermogenic
+- Balances and Calms Nerves: Nerve pain, nervous fatigue, and depression
+- Allergies/Sinusitis
+- One study reveals that Yerba Mate combined with with the plants Guarana and Damiana prolongs gastric emptying, which makes you feel “fuller” longer which helps body weight.
 
-Tempus quam pellentesque nec nam aliquam sem. Risus at ultrices mi tempus imperdiet. Id porta nibh venenatis cras sed felis eget velit. Ipsum a arcu cursus vitae. Facilisis magna etiam tempor orci eu lobortis elementum. Tincidunt dui ut ornare lectus sit. Quisque non tellus orci ac. Blandit libero volutpat sed cras. Nec tincidunt praesent semper feugiat nibh sed pulvinar proin gravida. Egestas integer eget aliquet nibh praesent tristique magna.
+Guarana is a tropical berry that grows in the Amazon Rain Forest that is believed to increase fat burning and increase energy.It is chemically identical to caffeine and has been used for thousands of years by natives to maintain stamina and increase physical endurance. Guarana seeds have up to 7% more caffeine than coffee beans.
+
+Guarana Caffeine is released more slowly than coffee  providing longer and more sustained energy.  Over the past twenty years  Guarana has gained popularity and can be found in various  fat burners, energy drinks and sports drinks. Some studies have indicated that Guarana has antioxidant and antibacterial benefits. Other studies prove that Guarana improves cognitive performance and reduces mental fatigue.
+
+Main Uses of Guarana:
+
+- Weightloss: Acts as a stimulant, increases fat burning, suppresses appetite  and acts as a diuretic
+- Cardiovascular Benefits: Ones, Balances and Strengthens the heart, Prevents Blood Clots, Cleanses blood.
+- Refrigerant: Prevents Heat Stroke
+- Antioxidant and Antibacterial properties: Protects against E. coli and Salmonella. Studies show Guarana increased  blood glucose levels and suppressed exercise-induced hypoglycemia
+- Nervine: Balances, calms and reduces nerve pain
+- Digestive Properties: Helps with cramps, diarrhea,  intestinal gas, constipation, water retention, and dysentery.
+- Relieves pain and other symptoms associated with migraines and headaches.
+- Guarana should not be used by those who are allergic to caffeine or xanthines. If you have any of the following conditions you should take refrain from consuming too much caffeine: high blood pressure, cardiac disorders, diabetes, ulcers, epilepsy, or if you take  MAO-inhibitors.
+
+Some manufacturers are trying to capitalise on Guarana’s popularity  by adding the Guarana name to their labels and simply adding chemical caffeine to their products, always make sure you are getting the real deal!
+
+Damiana is found in Mexico, Central America, The West Indies, as well as South America. A Spanish Missionary reported that the Mexican Indians would make a drink from Damiana leaves and drank it to enhance lovemaking. The Mayans used it for “Giddiness and loss of balance”.
+
+Damiana has a U.S. patent for its ability to relieve anxiety, depression, and headaches during menstruation and exhaustion. You can find Damiana in multiple weight loss, sexual enhancers, depression and hormone balancing supplements.
+
+##Main Uses of Damiana
+
+- Stimulant: Male and Female sexual stimulant.
+- Central Nervous System: Relieves Depression, Stress, Nervousness and Anxiety
+- Mood Disorders: Improves OCD, Paranoia, Depression, Hypochondria and Neurosis
+- Balances Hormones: Improves menstrual irregularities, vaginal discharge, fertility problems, and sexual debility
+- Other medical applications: Asthma, common cold, fatigue, bronchitis, neurosis, dysentery, and headaches
+
+<h2>Why use Damiana for Weight loss?</h2>
+
+On top of all the benefits listed above, Damiana works as a laxative which will help remove toxic waste from you system. It also helps raise your body’s metabolism and increases your energy level. When combined with Yerba Mate and Guarana, it has been scientifically proven to produce weight loss results by making you feel more full than you are, supressing your appetite.
+
+Zotrim Pros
+- Reduces Appetite
+- 8 Clinical Studies
+- Scientifically Proven Ingredients
+- Made from 100% Organic plant extracts
+- Speeds up Metabolism
+- Burns Fat
+- Increases Energy Levels
+- Improves Mood
+- Sexual Stimulant
+- Improves Digestion
+- Reduce weight by 5%, and hip /waist ratio
+Zotrim Cons
+- No Money Back Guarantee details listed
+- You have to take 6 capsules per day
+- Does Not Contain any of our Top Rated Ingredients
+
+##Conclusion
+Zotrim is a very promising weight loss supplement. Our only real complaint is that they do not mention, or offer details on a money back guarantee. You can find several products similar to Zotrim, like Clinicallix (although it is a “beefed up” version of Zotrim with two additional supplements) that do offer a 100% money back guarantee.  We give Zotrim two thumbs up if you are looking to shed a few unwanted pounds.
+
+The best place to purchase Zotrim is from their official website Zotrim.com for $33.89- $58.95 per bottle

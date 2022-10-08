@@ -13,7 +13,7 @@ We hope to clarify any and all fabricated hype  that surrounds diet pills. Which
 
 If you want weightlosssupplement-s.com to review a diet pill that is not listed, please let us know. Feel free to contact us at admin@followmyweigh.com
 
-<b>Terms of Use
+<b>Terms of Use</b>
 Please read these Website Terms of Use (“Terms”) carefully before using this website, including any of the discussion forums available on this website (each a “Forum”) (collectively, this website and the Forums are referred to hereafter as the “Site”).Using this Site indicates that you accept these Terms. If you do not accept these Terms, do not use this Site or Company’s (as hereinafter defined) products and services.
 
 <b>Introduction</b>

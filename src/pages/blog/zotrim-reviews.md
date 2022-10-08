@@ -42,6 +42,8 @@ Damiana is found in Mexico, Central America, The West Indies, as well as South A
 
 Damiana has a U.S. patent for its ability to relieve anxiety, depression, and headaches during menstruation and exhaustion. You can find Damiana in multiple weight loss, sexual enhancers, depression and hormone balancing supplements.
 
+<b><a href="https://zotrim.com/?a=215017" target="_blank">BUY NOW</a></b>
+
 ##Main Uses of Damiana
 
 - Stimulant: Male and Female sexual stimulant.
@@ -74,4 +76,4 @@ Zotrim Cons
 ##Conclusion
 Zotrim is a very promising weight loss supplement. Our only real complaint is that they do not mention, or offer details on a money back guarantee. You can find several products similar to Zotrim, like Clinicallix (although it is a “beefed up” version of Zotrim with two additional supplements) that do offer a 100% money back guarantee.  We give Zotrim two thumbs up if you are looking to shed a few unwanted pounds.
 
-The best place to purchase Zotrim is from their official website Zotrim.com for $33.89- $58.95 per bottle
+The best place to purchase Zotrim is from their official website <a href="https://zotrim.com/?a=215017" target="_blank">Zotrim.com</a> for $49- $149 per bottle

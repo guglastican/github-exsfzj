@@ -3,10 +3,10 @@ layout: "../../layouts/BlogPost.astro"
 title: "Zotrim Reviews - (Fake or Legit) Important Information Revealed Updated 2022"
 description: "What is Zotrim? Zotrim is an exciting new and natural weight loss supplement that promises to help you lose 5% of your body weight in 6 weeks.  "
 pubDate: "Jul 22 2022"
-heroImage: "/placeholder-hero.jpg"
+heroImage: "\zotrim-reviews.jpg"
 ---
 
-<h1>What is Zotrim?</h1>
+<h2>What is Zotrim?</h2>
 Zotrim is an exciting new and natural weight loss supplement that promises to help you lose 5% of your body weight in 6 weeks.  Zotrim is made from three natural plant extracts backed by 8 clinical studies- which should ease consumers minds. Zotrim is not the only product using this exact formulation, one of the “pioneers” being Clinicallix. What exactly makes  these 3 ingredients so effective and popular? What can they do to help you reach your weight loss goals?
 
 Ingredients

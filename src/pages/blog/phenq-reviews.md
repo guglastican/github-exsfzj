@@ -1,7 +1,7 @@
 ---
 layout: "../../layouts/BlogPost.astro"
 title: "PhenQ Review - Is It Worth It? My Experience on PhenQ Supplement"
-description: "PhenQ contains the power of multiple weight loss supplements in just one pill. Till today it is known as one of the best weight loss supplement. "
+description: "PhenQ contains the power of multiple weight loss supplements in just one pill. Till today it is known as one of the best weight loss supplement."
 pubDate: "Jul 15 2022"
 heroImage: "/phenq-reviews.jpg"
 ---

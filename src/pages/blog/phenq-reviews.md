@@ -37,7 +37,7 @@ On the other hand, this growing number of need also provided a chance to the fak
 
 As discussed about the five wonderful phenq ingredients, then it has been selected for their capability to prevent the body from storing excessive fats into the body, while, they motivate the metabolic process that leads to quickly digest the food and transform it into energy for the body. The ingredients also effective for making a control on your hunger and you will feel satisfied in a less consumption of food. Also, some ingredients are effective to be working as disconnecting the fatty tissues from your body, through a natural way and you will get a figure that you always wanted. The other necessary thing needs to be mentioned in here about the ingredients that every pill are manufactured under the cGMP certified pharmaceutical laboratories which ensures to produce the high quality of product in terms of quality, hygiene, safety and effectiveness.
 
-<h2>Benefits of using PhenQ<h2>
+<h2>Benefits of using PhenQ</h2>
 
 Here are some benefits of using PhenQ through the both genders without any troubles reduce their entire body fat and weight in a quick manner:
 
@@ -53,7 +53,7 @@ Here are some benefits of using PhenQ through the both genders without any troub
 
 <b>Supreme Quality Formula</b>: This fatness controlling formula has been designed by the FDA and GMP approved facilities along with its manufactured within the UK and USA. That’s why it is suitable fat melting supplement product as compared other fat burning products available in a market.
 
-<h2>With PhenQ, You Can Achieve the Body That You Always Dream For<h2>
+<h2>With PhenQ, You Can Achieve the Body That You Always Dream For</h2>
 
 As discussed about the PhenQ then this active solution is 100% suitable along with specially designed to handle the problem of heaviness as well as several other problems safely. So, it’s sure that after start using this magical product it will deliver you the perfect shape of physique along with the size that you always dream for. Following are some very essential information regarding PhenQ, we are going to share with you:
 
@@ -67,7 +67,7 @@ As discussed about the PhenQ then this active solution is 100% suitable along wi
 
 <b>15 Days Money Back Guarantee</b>: The PhenQ is providing you the guarantee so all the customers across the globe can confidently buy this product. In any case, if you are not completely satisfied with the result within a 15 days of period, then you can simply send back empty and full bottles of PhenQ and will immediately give back money to you.
 
-<h2>Is PhenQ Clinically Studied?<h2>
+<h2>Is PhenQ Clinically Studied?</h2>
 
 An enormous number of clinical studies have been carried out before producing the PhenQ. This supplement is effective for both melting the entire body fat and weight as well. On the other hand, this is considered in the most excellent manner to burn additional calories along with entire body fat.  PhenQ also offer 15 days money back guarantee, so if the product doesn’t reach up to your satisfaction, then you return it by standard stack up to your standards you can return it back and we will send your total money back to you with no questions asked.
 
@@ -75,23 +75,23 @@ An enormous number of clinical studies have been carried out before producing th
 
 As talking about the total satisfaction related to this product, then the majority of user viewers from all over the world given the positive reviews about this product. It is becoming possible, because the conditions under this slimming supplement designed and formulate in such a manner that will deliver you the quickest result in weight loss. This natural ingredients utilizes within this product having a capability to reduce your hunger along with the capability to burn additional calories that supports you to reduce weight. On the other hand, this supplement is free from any of the side effects because this product is only included natural ingredients which are completely safe, legal and effective to use.
 
-<b>How To Use Phenq?<b>
+<b>How To Use Phenq?</b>
 
 Every bottle of PhenQ contains (60) sixty tablets and it is a glass of plan water and the second tablet with the lunch by using the same process.
 
 On the other hand, several other products available in a market of this category are only included (30) thirty tablets as one month supply. While PhenQ provides you extra tablets as compare to other weight loss products available in the market.
 
-<b>Perfect Solution for Weight Loss<b>
+<b>Perfect Solution for Weight Loss</b>
 
 Well, the slimming product like PhenQ are getting the higher success rate as related to the effectiveness of this product. The marvelous weight loss effectiveness make possible because the ingredients utilizes in this product are all natural and its formula develops over the few years of research in an area of burning fat, increase the level of strength, stamina and power. This world famous slimming pill is gifted to work effectively on burning the excessive fat from your entire body without harming muscle mass. This product is approved by FDA, USA and only manufacture under the cGMP certified premises, so it’s completely free from any of the side effects.
 
 15 Days Money Back Guarantee: The PhenQ is providing you the guarantee so all the customers across the globe can confidently buy this product. In any case, if you are not completely satisfied with the result within a 15 days of period, then you can simply send back empty and full bottles of PhenQ and will immediately give back money to you.
 
-<h2>Is PhenQ Clinically Studied?<h2>
+<h2>Is PhenQ Clinically Studied?</h2>
 
 An enormous number of clinical studies have been carried out before producing the PhenQ. This supplement is effective for both melting the entire body fat and weight as well. On the other hand, this is considered in the most excellent manner to burn additional calories along with entire body fat.  PhenQ also offer 15 days money back guarantee, so if the product doesn’t reach up to your satisfaction, then you return it by standard stack up to your standards you can return it back and we will send your total money back to you with no questions asked.
 
-<h2>How To Use Phenq?<h2>
+<h2>How To Use Phenq?</h2>
 
 Every bottle of PhenQ contains (60) sixty tablets and it is a glass of plan water and the second tablet with the lunch by using the same process.
 
@@ -167,7 +167,7 @@ All the customer feedback across the globe sent the positive reviews, so now it�
 - Boost the power and size of muscles upwards
 - Suppress appetite and boost energy, stamina and sex drive
 
-<b>Special Offer<b>
+<b>Special Offer</b>
 
 Nowadays, phenQ is running a special offer, for the purchase of two get one absolutely free and purchase three and get two absolutely free. Please make sure that you have acted quickly because this offer is only for a limited time.
 
@@ -204,15 +204,6 @@ If you are breastfeeding woman, pregnant or expecting to be pregnant, then you s
 <h3>Is my information secure?</h3>
 
 Yes. All orders are processed using a secure system and will not send to anybody else.
-
-
-
-
-
-
-
-
-
 
 
 <h2>Testimonials</h2>

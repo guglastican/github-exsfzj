@@ -3,7 +3,7 @@ layout: "../../layouts/BlogPost.astro"
 title: "Zotrim Reviews - (Fake or Legit) Important Information Revealed Updated 2022"
 description: "What is Zotrim? Zotrim is an exciting new and natural weight loss supplement that promises to help you lose 5% of your body weight in 6 weeks.  "
 pubDate: "Jul 22 2022"
-heroImage: "\zotrim-reviews.jpg"
+heroImage: "/zotrim-reviews.jpg"
 ---
 
 <h2>What is Zotrim?</h2>

@@ -11,14 +11,14 @@ Followmyweigh.com is the Leading source of information on the World’s Top Rate
 
 We hope to clarify any and all fabricated hype  that surrounds diet pills. Which ones work? Which ones don’t? How good is their Customer Service? Which diet pill companies won’t rip you off?
 
-If you want weightlosssupplement-s.com to review a diet pill that is not listed, please let us know. Feel free to contact us at admin@followmyweigh.com
+If you want followmyweigh.com to review a diet pill that is not listed, please let us know. Feel free to contact us at admin@followmyweigh.com
 
 <b>Terms of Use</b>
 Please read these Website Terms of Use (“Terms”) carefully before using this website, including any of the discussion forums available on this website (each a “Forum”) (collectively, this website and the Forums are referred to hereafter as the “Site”).Using this Site indicates that you accept these Terms. If you do not accept these Terms, do not use this Site or Company’s (as hereinafter defined) products and services.
 
 <b>Introduction</b>
 
-This Site is owned and operated by WeightLossSupplement-s.com(“Company”, “we”, “our” or “us”). Company reserves the right to revise or remove any part of the Terms in its sole discretion at any time and without prior notice to you by updating this posting of the Terms. You thus should visit this page periodically for changes.  This Site is continually under development and changes to this Site may be made at any time.  Any changes to the Terms are effective upon posting to this Site.  If you disagree with the Terms, your sole remedy is to discontinue your use of this Site. Your continued use after a change has been posted by Company constitutes your acceptance of such change.  As such these Terms shall be considered legally binding and shall govern your use of the Site, as well as your purchase of any Company products.
+This Site is owned and operated by followmyweigh.com(“Company”, “we”, “our” or “us”). Company reserves the right to revise or remove any part of the Terms in its sole discretion at any time and without prior notice to you by updating this posting of the Terms. You thus should visit this page periodically for changes.  This Site is continually under development and changes to this Site may be made at any time.  Any changes to the Terms are effective upon posting to this Site.  If you disagree with the Terms, your sole remedy is to discontinue your use of this Site. Your continued use after a change has been posted by Company constitutes your acceptance of such change.  As such these Terms shall be considered legally binding and shall govern your use of the Site, as well as your purchase of any Company products.
 
 <b>Use of Services</b>
 Company may provide certain services through the Site or other websites controlled by Company. Such services may require that you agree to additional terms and conditions applicable to such services.  Those terms and conditions will, unless otherwise expressly stated in such terms, supersede these Terms in the event of a conflict only as to the services with respect to which those terms relate.

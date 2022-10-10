@@ -3,7 +3,7 @@ layout: "../../layouts/BlogPost.astro"
 title: "16 Benefits of a Healthier Lifestyle"
 description: "The health benefits of a healthier lifestyle include better control of your weight and a lower chance of getting diseases like heart disease, type 2 diabetes and stroke."
 pubDate: "Jul 09 2022"
-heroImage: "/placeholder-hero.jpg"
+heroImage: "/benefits-of-healthier-lifestyle.jpg"
 ---
 
 Everyone has their own reasons for making a decision to improve their life through a fitness program or healthier lifestyle. And while most people are concerned with losing weight and looking better, here is a list of many of the other important potential benefits that Healthy Weight Inner Circle can provide:

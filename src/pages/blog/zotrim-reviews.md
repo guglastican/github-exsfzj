@@ -17,26 +17,26 @@ Yerba Maté has been used for centuries in Brazil and Paraguay as a beverage. A 
 - As a stimulant: due to the caffeine content (0.7-2.0%)
 - As a Tonic: Tones, Strengthens and balance the body, and aids in digestion
 - Obesity: Acts as a Thermogenic
-- Balances and Calms Nerves: Nerve pain, nervous fatigue, and depression
+- It helps to alleviate nerve pain, nervous fatigue, and depression.
 - Allergies/Sinusitis
 - One study reveals that Yerba Mate combined with with the plants Guarana and Damiana prolongs gastric emptying, which makes you feel “fuller” longer which helps body weight.
 
 Guarana is a tropical berry that grows in the Amazon Rain Forest that is believed to increase fat burning and increase energy.It is chemically identical to caffeine and has been used for thousands of years by natives to maintain stamina and increase physical endurance. Guarana seeds have up to 7% more caffeine than coffee beans.
 
-Guarana Caffeine is released more slowly than coffee  providing longer and more sustained energy.  Over the past twenty years  Guarana has gained popularity and can be found in various  fat burners, energy drinks and sports drinks. Some studies have indicated that Guarana has antioxidant and antibacterial benefits. Other studies prove that Guarana improves cognitive performance and reduces mental fatigue.
+Guarana, a caffeine-packed berry, provides more sustainable energy than coffee. It's become popular in the last twenty years and can be found in many fat burners and sports drinks. Some studies have indicated that Guarana has antioxidant and antibacterial benefits. Other studies have shown that Guarana can improve cognitive performance and reduce mental fatigue.
 
 Main Uses of Guarana:
 
-- Weightloss: Acts as a stimulant, increases fat burning, suppresses appetite  and acts as a diuretic
+- Weightloss: It works as a stimulant to increase your body's fat-burning capabilities, suppresses your appetite and acts as a diuretic.
 - Cardiovascular Benefits: Ones, Balances and Strengthens the heart, Prevents Blood Clots, Cleanses blood.
 - Refrigerant: Prevents Heat Stroke
 - Antioxidant and Antibacterial properties: Protects against E. coli and Salmonella. Studies show Guarana increased  blood glucose levels and suppressed exercise-induced hypoglycemia
 - Nervine: Balances, calms and reduces nerve pain
-- Digestive Properties: Helps with cramps, diarrhea,  intestinal gas, constipation, water retention, and dysentery.
+- Digestive Properties: It helps to relieve cramps, diarrhea, intestinal gas, constipation and water retention.
 - Relieves pain and other symptoms associated with migraines and headaches.
 - Guarana should not be used by those who are allergic to caffeine or xanthines. If you have any of the following conditions you should take refrain from consuming too much caffeine: high blood pressure, cardiac disorders, diabetes, ulcers, epilepsy, or if you take  MAO-inhibitors.
 
-Some manufacturers are trying to capitalise on Guarana’s popularity  by adding the Guarana name to their labels and simply adding chemical caffeine to their products, always make sure you are getting the real deal!
+Some manufacturers are trying to cash in on Guarana's popularity by using the name in their product labeling and adding chemically synthesized caffeine to their products. Always make sure you're getting the real deal!
 
 Damiana is found in Mexico, Central America, The West Indies, as well as South America. A Spanish Missionary reported that the Mexican Indians would make a drink from Damiana leaves and drank it to enhance lovemaking. The Mayans used it for “Giddiness and loss of balance”.
 
@@ -44,13 +44,13 @@ Damiana has a U.S. patent for its ability to relieve anxiety, depression, and he
 
 <b><a href="https://zotrim.com/?a=215017" target="_blank">BUY NOW</a></b>
 
-##Main Uses of Damiana
+Main Uses of Damiana
 
 - Stimulant: Male and Female sexual stimulant.
 - Central Nervous System: Relieves Depression, Stress, Nervousness and Anxiety
 - Mood Disorders: Improves OCD, Paranoia, Depression, Hypochondria and Neurosis
-- Balances Hormones: Improves menstrual irregularities, vaginal discharge, fertility problems, and sexual debility
-- Other medical applications: Asthma, common cold, fatigue, bronchitis, neurosis, dysentery, and headaches
+- Balances hormone levels: improves menstrual irregularities, vaginal discharge and fertility problems.
+- Other medical applications: Asthma, the common cold, fatigue, bronchitis, neurosis, and dysentery can all make you feel run down. Headaches are also very common.
 
 <h2>Why use Damiana for Weight loss?</h2>
 
@@ -58,7 +58,7 @@ On top of all the benefits listed above, Damiana works as a laxative which will 
 
 Zotrim Pros
 - Reduces Appetite
-- 8 Clinical Studies
+- 5 Clinical Studies
 - Scientifically Proven Ingredients
 - Made from 100% Organic plant extracts
 - Speeds up Metabolism
@@ -66,14 +66,14 @@ Zotrim Pros
 - Increases Energy Levels
 - Improves Mood
 - Sexual Stimulant
-- Improves Digestion
+- Supports healthy digestion
 - Reduce weight by 5%, and hip /waist ratio
 Zotrim Cons
-- No Money Back Guarantee details listed
+- 100 days Money Back Guarantee details listed
 - You have to take 6 capsules per day
 - Does Not Contain any of our Top Rated Ingredients
 
 ##Conclusion
-Zotrim is a very promising weight loss supplement. Our only real complaint is that they do not mention, or offer details on a money back guarantee. You can find several products similar to Zotrim, like Clinicallix (although it is a “beefed up” version of Zotrim with two additional supplements) that do offer a 100% money back guarantee.  We give Zotrim two thumbs up if you are looking to shed a few unwanted pounds.
+Zotrim is a very promising weight loss supplement. You can find several products similar to Zotrim, like Clinicallix (although it is a “beefed up” version of Zotrim with two additional supplements) that do offer a 100% money back guarantee.  We give Zotrim two thumbs up if you are looking to shed a few unwanted pounds.
 
 The best place to purchase Zotrim is from their official website <a href="https://zotrim.com/?a=215017" target="_blank">Zotrim.com</a> for $49- $149 per bottle

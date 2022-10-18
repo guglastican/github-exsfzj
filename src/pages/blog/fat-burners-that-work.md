@@ -15,11 +15,17 @@ One way to see extra results is to take a fat burner. A fat burner is a suppleme
 If you have taken a look at all of the fat burners out there, you know there are dozens if not hundreds to choose from. How do you know which one will work for you? Well, let's look at a couple of the traits you should make sure the fat burner has.
 
 <b>Metabolism Increase</b> – You want to make sure that it is going to effectively do the job you need. The first part of the job is increasing your metabolism to make your body burn more fat. Read up on the fat burners you are considering to see how well they do this.
+
 <b>Help You Burn More Fat</b> – The energy boost that you are going to get from a quality fat burner will help you to do even more to move your body on the right track, like get a little extra exercise that will help you get rid of the fat all the faster!
+
 <b>Quality Product</b> – You want to make sure you are getting a good, quality product. To this end, look for fat burners that are pharmacy quality. There is not as much oversight on fat burners as other supplements, so it really is buyer beware. By knowing that the item you are using is a pharmacy grade supplement, you can feel better about the quality.
+
 <b>Appetite Suppressant</b> – In addition to helping you burn fat, you want to look for fat burners that can help you take in less fat. Some also have appetite suppressant qualities that will help you curb your appetite.
+
 <b>Results</b> – You want to know what kind of results you will get from a fat burner. Look for ones that will give you results you want such as 2-5 lbs per week. Those that offer more weight loss than this could be dangerous.
+
 <b>Price</b> – Price is always a consideration when it comes to buying fat burners. You need to get something quality but at a price you can handle. Consider the price per day when purchasing. You can do the simple math for a bottle of pills to sort this out. Those that are in the $2-$3 per day range are not much different than getting a cup of coffee. But those that are $4 or more a day are a little high and can put you out a lot of money at the end of the month.
+
 Do your research into products like PhenQ to see which one has the quality you need at the right price.
 
 <h2>Fat Burners That Work To Feel Better</h2>

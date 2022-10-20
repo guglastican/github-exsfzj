@@ -3,7 +3,7 @@ layout: "../../layouts/BlogPost.astro"
 title: "What are Raspberry Ketones?"
 description: "Raspberry ketones belong to the family of natural compounds called phenolics and they are what give red raspberries their sweet aroma. "
 pubDate: "Jul 01 2022"
-heroImage: "/raspberry-ketones.png"
+heroImage: "/raspberry-ketones.jpg"
 ---
 
 <h1>What are Raspberry Ketones?</h1>

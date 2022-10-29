@@ -11,7 +11,7 @@ Zotrim is an exciting new and natural weight loss supplement that promises to he
 
 <h2>How does Zotrim work?</h2>
 
-Zotrim works by making you feel less hungry and helps you burn calories by increasing your metabolic rate. Zotrim has been clinically proven to reduce appetite resulting in feeling fuller for longer after meals. This helps prevent <b><a href="https://www.followmyweigh.com/blog/midnight-snacking" target="_blank">snacking</a></b> on extra calories that might hinder your weight loss efforts.
+Zotrim works by making you feel less hungry and helps you burn calories by increasing your metabolic rate. Zotrim has been clinically proven to reduce appetite resulting in feeling fuller for longer after meals. This helps prevent <b><a href="https://www.followmyweigh.com/blog/midnight-snacking" title="midnight snacking">snacking</a></b> on extra calories that might hinder your weight loss efforts.
 
 The caffeine contained in Yerbe mate and Gurana helps increase your metabolic rate thus aiding you in burning more calories.
 

@@ -154,6 +154,7 @@ If you are breastfeeding woman, pregnant or expecting to be pregnant, then you s
 
 Yes. All orders are processed using a secure system and will not send to anybody else.
 
+<b><a href="https://www.wpha.org/global_engine/download_custom.aspx?fileid=a1591e0c-c6af-4d2d-ae7d-33d5d88832cd.pdf&filename=Meladerm%20Review.pdf&blnIsPublic=2&code=blog&sub=add" title="Meladerm Review: Legit Skin lightening Cream or Scam Brand?">Meladerm Review: Legit Skin lightening Cream or Scam Brand?</a></b>
 
 <h2>Testimonials</h2>
 
